@@ -48,3 +48,11 @@ Seguir contribuyendo al desarrollo de porteros, aportando mi experiencia como fu
 
 ---
 *Perfil deportivo profesional de Darío Germán Cedrés Correa.*
+
+
+## Referencias periodísticas independientes
+
+- **LARED21**, «Manos del Uruguay» (25 de junio de 2001). El artículo identifica a Darío Germán Cedrés como exguardameta de las juveniles de Nacional y señala que defendía los colores de Deportes Melipilla. [Leer la noticia](https://www.lr21.com.uy/deportes/47349-manos-del-uruguay).
+- **FutbolinGalicia**, «Volver a Terceira RFEF e recuperar a calma: Obxectivos principais do Rápido de Bouzas». El artículo menciona a Darío Cedres como entrenador de porteros del primer equipo. [Leer la noticia](https://futbolingalicia.es/rapido-de-bouzas-obxectivos-principais-volver-terceira-recuperar-calma/).
+
+*Estas referencias documentan únicamente los hechos concretos que mencionan; el resto de la trayectoria se basa en la información profesional aportada por el propio interesado.*
