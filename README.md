@@ -56,3 +56,5 @@ Seguir contribuyendo al desarrollo de porteros, aportando mi experiencia como fu
 - **FutbolinGalicia**, «Volver a Terceira RFEF e recuperar a calma: Obxectivos principais do Rápido de Bouzas». El artículo menciona a Darío Cedres como entrenador de porteros del primer equipo. [Leer la noticia](https://futbolingalicia.es/rapido-de-bouzas-obxectivos-principais-volver-terceira-recuperar-calma/).
 
 *Estas referencias documentan únicamente los hechos concretos que mencionan; el resto de la trayectoria se basa en la información profesional aportada por el propio interesado.*
+
+- **Club Atlético Cerro (1995):** una recopilación histórica de plantillas publicada en el blog *Fútbol en América* incluye el nombre «Darío Cedrés» en un listado/fotografía del equipo de Cerro de 1995. Es una referencia histórica complementaria, no una fuente oficial del club. [Consultar la recopilación](https://historiascoperas.blogspot.com/2015/12/club-atletico-cerro-montevideo-uruguay.html).
