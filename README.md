@@ -6,9 +6,9 @@ Entrenador de porteros con experiencia en fútbol base y primer equipo, y trayec
 ## Trayectoria como futbolista
 
 - Nacional de Montevideo (Uruguay)
-- Club Atlético Cerro (Uruguay)
-- Club Social y Deportivo Tanque Sisley (Uruguay)
-- Deportes Melipilla (Chile)
+- Club Atlético Cerro (Uruguay, 1995)
+- Club Social y Deportivo Tanque Sisley (Uruguay, 1998)
+- Deportes Melipilla (Chile, 1999)
 - Deportes La Serena (Chile)
 - Club de Fútbol Pachuca (México)
 
@@ -59,3 +59,12 @@ Seguir contribuyendo al desarrollo de porteros, aportando mi experiencia como fu
 
 - **El Tanque Sisley (Uruguay, 1998):** una recopilación histórica de plantillas de *Fútbol en América* incluye a «Darío Cedrés» en la relación de jugadores de El Tanque Sisley de 1998. Es una referencia histórica complementaria, no una fuente oficial del club. [Consultar la recopilación](https://historiascoperas.blogspot.com/2015/12/centro-cultural-y-deportivo-el-tanque.html).
 - **Club Atlético Cerro (1995):** una recopilación histórica de plantillas publicada en el blog *Fútbol en América* incluye el nombre «Darío Cedrés» en un listado/fotografía del equipo de Cerro de 1995. Es una referencia histórica complementaria, no una fuente oficial del club. [Consultar la recopilación](https://historiascoperas.blogspot.com/2015/12/club-atletico-cerro-montevideo-uruguay.html).
+
+## Experiencia complementaria indicada en el currículum
+
+- Actividad profesional vinculada al Tenerife Club de Fútbol.
+- Participación junto a la selección Sub-16 de Uruguay en una gira en Lima.
+- Participación en el Congreso de Arqueros FIFA, en Zúrich.
+- [Perfil profesional de LinkedIn](https://es.linkedin.com/in/dario-germ%C3%A1n-cedres-correa-4a8322115).
+
+*Estos hitos complementarios constan en la documentación curricular facilitada por el interesado; las temporadas y funciones concretas pueden ampliarse con documentación adicional.*
