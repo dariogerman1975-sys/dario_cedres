@@ -57,4 +57,5 @@ Seguir contribuyendo al desarrollo de porteros, aportando mi experiencia como fu
 
 *Estas referencias documentan únicamente los hechos concretos que mencionan; el resto de la trayectoria se basa en la información profesional aportada por el propio interesado.*
 
+- **El Tanque Sisley (Uruguay, 1998):** una recopilación histórica de plantillas de *Fútbol en América* incluye a «Darío Cedrés» en la relación de jugadores de El Tanque Sisley de 1998. Es una referencia histórica complementaria, no una fuente oficial del club. [Consultar la recopilación](https://historiascoperas.blogspot.com/2015/12/centro-cultural-y-deportivo-el-tanque.html).
 - **Club Atlético Cerro (1995):** una recopilación histórica de plantillas publicada en el blog *Fútbol en América* incluye el nombre «Darío Cedrés» en un listado/fotografía del equipo de Cerro de 1995. Es una referencia histórica complementaria, no una fuente oficial del club. [Consultar la recopilación](https://historiascoperas.blogspot.com/2015/12/club-atletico-cerro-montevideo-uruguay.html).
